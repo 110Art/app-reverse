@@ -2,7 +2,7 @@
 
 Contact me
 
-##### telegram：@lluobor（备注来意）QQ：240313073
+##### telegram：@lluobor（备注来意）
 
 Search terms
 
